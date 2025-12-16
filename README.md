@@ -1,1 +1,0 @@
-# A.-Vanya-and-Cubes
